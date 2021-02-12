@@ -1,1 +1,1 @@
-1
+sali,hin allahını
